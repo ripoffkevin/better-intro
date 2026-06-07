@@ -1,7 +1,2 @@
-# better-intro
-<img width="2000" height="1524" alt="brandbird-stamp (2)" src="https://github.com/user-attachments/assets/17fd6046-62ca-47f0-93bb-00d067a7a592" />
-hello! this is only here because i cant figure out how to delete this.
-if you need me in pt, just whisper to ask me things! be nice though, i block people often.
-as a small intro; hello!! my name is ripoffkevin, marco, or yatta! i used to have a twitter account under the same name, and got suspended in 2025. i came back in 2026!
-i like drawing, listening to music, and playing roblox. i dont draw as often anymore due to artblock, but i'll still repost my art on occasion!
-thanks for reading!
+<img width="300" height="300" alt="902f9df9c1b1847a659ee2ad04c27953-removebg-preview" src="https://github.com/user-attachments/assets/dd687efd-4ebe-4b59-9cd2-d712a5111d18" />
+yo! im ripoffkevin, marco, starrythelamp, ect ect.. ive had many names lol. i used to have two twitters (ripoffkevin was the first, ripoffkevvin the second) that i got suspended on. i now very passively use bsky and play ponytown to play with friends! i also play roblox, vrchat, and minecraft. i have many many interests and i like talking about them, if it ever gets annoying please tell me :). thats all for now! byebye!
